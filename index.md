@@ -16,9 +16,5 @@ Other interests – investing, car and their technology (navigation and all-whee
 
 ## My Website Consulting Company
 
-### Leading Web Studio, LLC
-I have had this business for over 20 years now and have provided many, many solutions for various types of clients. LWS provides kick-ass websites that help make your company money.
-
-Find out more today!
-
-## Contact
+### Leading Web Studio, LLC (LWS)
+I have had this business for over 20 years now and have provided many, many solutions for various types of clients. [LWS provides super-fast websites for tech-savvy companies](https://leadingwebstudio.com).
