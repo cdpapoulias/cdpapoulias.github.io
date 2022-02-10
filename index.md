@@ -14,7 +14,7 @@ I attended Loyola University Maryland from 1995 to 1999 and remain active with t
 
 Other interests – investing, car and their technology (navigation and all-wheel drive/stability systems), learning Greek, being Greek-Orthodox, learning about log cabin construction (types of logs, homesites, designs etc), solar power and genealogy just to name a few.
 
-## My Website Consulting Company
+## My Company
 
 ### Leading Web Studio, LLC (LWS)
 I have had this business for over 20 years now and have provided many, many solutions for various types of clients. [LWS provides super-fast websites for tech-savvy companies](https://leadingwebstudio.com).
