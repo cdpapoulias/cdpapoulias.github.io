@@ -1,5 +1,5 @@
 # C. Dinos Papoulias
-## Reach for new heights but don’t forget lessons learned in the past. I’m passionate about helping people, motivating and getting things done.
+>## Reach for new heights but don’t forget lessons learned in the past. I’m passionate about helping people, motivating and getting things done.
 
 ## Overview
 I’m passionate about helping people, motivating and getting things done.
